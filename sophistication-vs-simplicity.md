@@ -1,0 +1,1 @@
+Competitive "sophistication" (rather, complication masked as sophistication) is harmful, as compared to the practitioner's craving for optimal simplicity - Nassim Nicholas Taleb, in the book "Antifragile"
